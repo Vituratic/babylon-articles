@@ -1,0 +1,7 @@
+### Diebstahl bei Wiesel
+
+Wer Annesburg kennt, weiß: Die Mitternachtshalle von Mr. Wiesel ist berühmt für ihre nautische Dekoration – und besonders für den Alligator mit Zylinder an der Kasse. Doch das Maskottchen ist spurlos verschwunden. Stecken politische Gründe dahinter?  
+Einige Minenarbeiter tippen auf einen Kollegenstreich – der Alligator werde schon wieder zurückkommen, heißt es.  
+Andere vermuten Kalkül. Wie Sie sicherlich wissen, kandidiert Mr. Wiesel für die Sozialisten und engagiert sich enorm für die Arbeiterschaft. Er fordert unter anderem höhere Löhne, die Begrenzung der Schichten auf 8 Stunden und bessere Möglichkeiten zur Gründung von Gewerkschaften.  
+Ausgerechnet ein Alligator mit dem Zylinder der Kapitalistenklasse direkt neben der Ladenkasse – Symbol für Wiesels Widerstand – ist nun weg. Ein Schelm, wer vermutet, McNulty wollte Wiesel einschüchtern – just jetzt, wo die Wahl naht. Ein mögliches Motiv? McNulty ist Inhaber der Fabrik Olympus in Saint Denis und aktueller Senator. Somit ist er nicht nur politischer Gegner, sondern klarer Klassenfeind, dem man wohl mit Fug und Recht ein Interesse an der Manipulation von Wiesels Wahlkampf unterstellen darf.  
+Wir bleiben dran, auch wenn der Wahlkampf tobt, und halten Sie auf dem Laufenden.
